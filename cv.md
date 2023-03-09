@@ -2,8 +2,8 @@
 
 ## Contacts
 
-**Phone:** +375-(44)-703-26-43
-**Email:** tsssalko.anna@gmail.com
+**Phone:** +375-(44)-703-26-43  
+**Email:** tsssalko.anna@gmail.com  
 **Telegram:** @tskans
 
 ## About me
